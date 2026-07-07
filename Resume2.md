@@ -4,7 +4,7 @@
   # SANTIPAP SANSAMNI (TOEY)
   **Computer Science Undergraduate | Software Developer & Network Enthusiast**
 
-  📍 Roi Et, Thailand | 📞 0XX-XXX-XXXX | ✉️ santipapsansamni@gmail.com  
+  📍 Roi Et, Thailand | 📞 096-376-2738 | ✉️ santipapsansamni@gmail.com  
   🔗 [GitHub](https://github.com/toey111)
 </div>
 
